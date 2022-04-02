@@ -30,3 +30,35 @@ Receitas da semana da chef, semana fit
 
 
 
+## Terça-feira:
+
+### Entrada: *Salada de couve*
+
+* Couve
+* Cebola 
+* tomate 
+* Sal
+* Azeite extra virgem
+
+### Prato principal: *Abóbora com calabresa*
+
+* Abóbora em cubos 
+* linguiça calabresa
+* Alho
+* Temperos em pó
+* cheiro verde 
+* Cebola 
+  
+### Sobremesa: *Bolo com essência de queijo*
+
+* Farinha de Trigo
+* Manteiga ou Margarina
+* Ovos
+* Açúcar
+* Fermento químico
+* leite líquido
+* Essência de queijo
+
+
+
+  
